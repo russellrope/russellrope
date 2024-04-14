@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @russellrope
+- 👀 I’m interested in $$$$$$$$$$$$ >< sales @ https://opensea.io/russellrope
+- 🌱 I’m currently learning how to write Smart Contracts & Create Meme Coin, More 3D/Design/Video, Architecture, Law
+- 💞️ I’m looking to collaborate on marketing and PR
+- 📫 How to reach me @ https://russellrope.com
+- 😄 Pronouns: OG
+- ⚡ Fun fact: https://russellrope.com/real-legaltrillog-revolution
