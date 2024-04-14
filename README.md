@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on marketing and PR
 - 📫 How to reach me @ https://russellrope.com
 - 😄 Pronouns: OG
-- ⚡ Fun fact: https://russellrope.com/real-legaltrillog-revolution
+- ⚡ Fun fact @ https://russellrope.com/real-legaltrillog-revolution
